@@ -6,4 +6,5 @@ Whisk the cocoa powder and 1 1/2 cups boiling water in a medium bowl until smoot
 
 Divide the batter between the prepared pans and tap the pans against the counter to help the batter settle. Bake until a toothpick inserted into the middle comes out clean, 30 to 40 minutes. Transfer to racks and let cool 10 minutes, then run a knife around the edge of the pans and turn the cakes out onto the racks to cool completely. Remove the parchment. Trim the tops of the cakes with a long serrated knife to make them level, if desired.
 
-and your chocolate cake is ready!!
+
+and your chocolate cake is ready to be served!!
